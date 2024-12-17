@@ -1166,11 +1166,9 @@ The final scene depicted a world under surveillance, where every thought was mon
 In the end, the story of Seraphina and her companions was a reminder of the ever-present battle between knowledge and deception, and the high stakes of the war for the human mind.
 
 
-
- 				 -________          /\       ____
-                   		 \\  || || ||\\    //\\  /\/\\7/|
-				     || ||_|| \\/\//- \\//\/\\/Y>\  
-         						       l---/
+  ^  ^ \\//||//\\//\\// \
+ //\/\\//  ||\\//\\/// /\_
+         						      
 
 
 
