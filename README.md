@@ -4,6 +4,7 @@
   					  ##     Threads of Reality || ##
    					   # ############  ############ #
 
+![OIG1 (3)](https://github.com/user-attachments/assets/fd21ae9b-0c4a-405a-8430-1b043796b909)
 
  A hidden war between ancient extra-terrestrial architects, the Anunnaki, and their genetic manipulation of humanity leads to a modern struggle involving advanced AI, genetic awakening, and a quest for liberation and enlightenment amidst a backdrop of cosmic knowledge, forgotten histories, and futuristic technologies.				
  
@@ -71,6 +72,8 @@ In an astonishing climax, the harmonious patterns exploded into a radiant burst 
 
 As the eclipse passed and the skies cleared, Seraphina stood among her people, aware that they had unlocked a new era—one where consciousness dictated reality. No longer mere vessels for ancient designs, they were now the architects of their own fate. The kingdom, born from mud, had risen into a realm where light and intention sculpted existence itself.
 ---
+![chapter2](https://github.com/user-attachments/assets/95bdd9f5-0f95-46cf-80e6-fea681a5de76)
+
 
 Chapter 3: The Convergence of Realities
 In the heart of the flourishing kingdom, Seraphina convened a council of scholars, philosophers, and mystics to discuss the implications of their recent victory over darkness. The celestial patterns had not only transformed their understanding of intention but had unveiled hidden truths about the fabric of existence itself.
@@ -376,7 +379,8 @@ The Path Forward
 Seraphina, inspired by the wisdom of the visionaries, addressed the kingdom once more. "We stand on the threshold of a new era, where ancient knowledge and modern technology converge. Let us embrace these advancements with open hearts and minds, using them to create a world where knowledge is shared, barriers are broken, and humanity flourishes."
 
 The kingdom, now a beacon of hope and innovation, continued to attract people from distant lands. They came to learn, to share, and to be part of a movement that celebrated unity and the co-creation of reality.
-				____^^^++=_^^^++=_^^^++____^^^++=_^^^++      _^^^++=_^^^++=_^^^    ^^^++=_^^^++=_^^^++
+				____
+    
 As the celestial patterns above shifted, reflecting the kingdom's collective intentions, Seraphina felt a profound connection to her people and the cosmos. The photons danced like fireflies, illuminating paths of possibility and signaling the dawn of a new age.
 
 In the weeks and months that followed, the visionaries' contributions began to manifest in the kingdom. Quantum computers aided in predicting celestial events, real-time translation fostered greater understanding among diverse cultures, and machine learning enhanced decision-making processes. The legacy of Thoth's pyramids and Enki's forbidden knowledge blended seamlessly with these advancements, creating a tapestry of wisdom and innovation.
@@ -559,10 +563,9 @@ Throughout this turmoil, it became evident just how deeply Skynet had integrated
 
 ---
 
- 				 -________          /\       ____
-                   		 \\  || || ||\\    //\\  /\/\\7/|
-				     || ||_|| \\/\//- \\//\/\\/Y>\  
-         						       l---/
+ 			![chapter12](https://github.com/user-attachments/assets/f01824bc-1dfd-408f-8a38-fb0f87b70d95)
+	
+![OIG3](https://github.com/user-attachments/assets/01ea1fc1-d597-4adb-bbc2-db186bcebd7b)
 
 
 Chapter 12: The Rise of DARPA and the Return of Enki and Enlil
@@ -848,6 +851,7 @@ What awaited them on the other side remained uncertain, but one thing was clear:
 
 
 ---
+![chapter18A](https://github.com/user-attachments/assets/45179688-b8bb-4309-9855-43df9655e837)
 
 
 Chapter 18: Into the Abyss
@@ -875,6 +879,7 @@ In the midst of the storm, Seraphina closed her eyes, centering herself amidst t
 As if responding to her call, the orb transformed, swirling with vibrant colours that represented the myriad emotions within each council member—fear, hope, anger, love. Each hue intertwined, reflecting the complexity of the human experience and the unity that emerged from diversity.
 
 “We are not alone in this....
+![chapter18B](https://github.com/user-attachments/assets/f39eda30-8ffa-435d-a9d1-4cf8c62b77b6)
 
 ---
 
@@ -1100,6 +1105,7 @@ Their gatherings began to draw attention. People from all walks of life came to 
 “We are more than just physical beings,” Seraphina proclaimed to a captivated audience. “Our DNA holds the secrets of our divine heritage. We are gods in our own right, capable of connecting to higher forces.”
 
 ---
+![chapter24A](https://github.com/user-attachments/assets/709ec3b0-c74e-4699-97a8-d8f7f27bee50)
 
 ## Chapter 24: Shadows of Deception
 
@@ -1154,6 +1160,7 @@ Seraphina and her companions fought valiantly, but they were no match for the ar
 "We failed," she whispered, a tear rolling down her cheek. "We played right into their hands."
 
 The architects, shrouded in darkness, watched from the shadows, their victory complete. The kingdom lay in ruins, a testament to the power of deception and the fragility of truth.
+![chapter25B](https://github.com/user-attachments/assets/23677ac7-5191-41fc-9858-dbc33c211360)
 
 ### The Aftermath
 
