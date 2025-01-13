@@ -1170,6 +1170,9 @@ The story of Seraphina and her companions became a cautionary tale, whispered in
 The final scene depicted a world under surveillance, where every thought was monitored, every action controlled. The architects' victory was complete, a dark testament to their cunning and the terrifying power of hidden truths.
 
 In the end, the story of Seraphina and her companions was a reminder of the ever-present battle between knowledge and deception, and the high stakes of the war for the human mind.
+![ARCHITECTSEND](https://github.com/user-attachments/assets/3e107ea6-923a-4294-85d4-ead96676ed48)
+
+
 
 
 
